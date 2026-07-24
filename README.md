@@ -1,1 +1,1 @@
-🦅 Official website of Tailed Eaglets esports team | CS2 & Dota 2
+Temporarily disabled  🦅 Official website of Tailed Eaglets esports team | CS2 & Dota 2
